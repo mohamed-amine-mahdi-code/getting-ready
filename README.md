@@ -1,0 +1,2 @@
+# getting-ready
+random shiiii*
